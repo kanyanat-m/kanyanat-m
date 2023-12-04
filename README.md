@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @kanyanat-m
-- 🌱 I’m currently learning on electrical engineering
 - 📫 Reach me @ kanyanat.mnp@gmail.com
 
 <!---
